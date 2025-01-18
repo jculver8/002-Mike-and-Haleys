@@ -1,0 +1,2 @@
+# Overview
+Wood Elf Druid that wants to explore the world to help her get out of her shell. She is nervous often and had a stutter as a child, which comes out when she isn’t confident during a scene. The catalyst for wanting to get out of her shell was because she missed an opportunity of a lover from not speaking her feelings and the potential lover married to someone else.

@@ -1,0 +1,2 @@
+# Overview
+a Tiefling Rogue, and pet weasel Wiles form a partnership that came from a traveling gypsy group and left to see the world and grow their horizons. Giles is distrustful of Gnomes, due to being bullied at a young age in the troupe. Wiles loves shiny things and will often steal buckles from people, which Giles stores in a small pouch for him.
