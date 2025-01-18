@@ -9,3 +9,12 @@ From a young age Keokin’s family was murdered, he was found unconscious with b
 - **Lauralot**:   
 # Motivations
 To hunt and seek those who murdered his family and caused the injustice of him getting imprisoned for the crime. This motivates his constant searching for the truth which will often cause rifts with those whom he learns have lied.
+
+# Jon's Notes
+- Level 2 - 22hp Action Surge & Tactical Mind
+- Level 3 - 31hp Cantrips: Thunderclap and Booming Blade. lvl 1: Shield, Witch Bolt, Absorb Elements (2 spell slots) & War Bond (2 weapons)
+- level 4 - 40hp weapon mast (flail:sap) & feat: polearm master +1 str
+- level 5 - 49hp extra attack & tactical shift
+- level 6 - 58hp feat:great weapon fighting
+- level 7 - 67hp war magic
+- level 8 - 76hp feat: ability score +2 con, +1 str
